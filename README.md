@@ -1,3 +1,3 @@
 # My file
->• https://bit.ly/FullPerform
->• https://bit.ly/emote2juta
+>• bit.ly/FullPerform
+>• bit.ly/emotff2juta
